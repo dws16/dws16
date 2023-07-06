@@ -16,4 +16,4 @@ I am ever eager to connect with fellow magicians of the code and embark on extra
 <br/>
 <br/>
 <br/>
-As you bid farewell to my mystical profile, I extend my deepest gratitude for your presence. May your days be filled with enchantment and wonder! 🪄
+As you bid farewell to my mystical profile, I extend my deepest gratitude for your presence. May your days be filled with enchantment and wonder! 🌟
