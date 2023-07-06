@@ -1,4 +1,4 @@
-## Hi there <img src="https://media.giphy.com/media/v1.Y2lkPTc5MGI3NjExN2M0dWttd241NmR4OTY5ZnE3OXJuczZhdTMyd3YzOGFiMGl1bzBxbSZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9ZQ/J2awouDsf23R2vo2p5/giphy.gif" width="50px">, I am Firdaus 🧙🏻‍♂️
+## Hi there, I am Firdaus <img src="https://media.giphy.com/media/v1.Y2lkPTc5MGI3NjExaW92cG4xcmk1aWM1anQ0Ym9zY3dqZDQxZmZhaGR4NnZ3aHZjdW50ZyZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9ZQ/LOnt6uqjD9OexmQJRB/giphy.gif" width="35px" style="margin-bottom: -10px">
 
 [![Linkedin Badge](https://img.shields.io/badge/-LinkedIn-0e76a8?style=flat-square&logo=Linkedin&logoColor=white)](https://linkedin.com/in/firdaus-nanda)
 [![Instagram Badge](https://img.shields.io/badge/-Instagram-e4405f?style=flat-square&logo=Instagram&logoColor=white)](https://instagram.com/dausnp/)
