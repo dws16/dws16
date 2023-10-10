@@ -12,7 +12,7 @@ Greetings, traveler of the digital realms! <img src="https://media.giphy.com/med
 - 🔭 I’m currently working on [SERA](https://www.sera.astra.co.id/)
 
 ### Journey Together
-I am ever eager to connect with fellow magicians of the code and embark on extraordinary quests together. Should you wish to join forces and craft something truly magical, do not hesitate to send a message via <a href="mailto:firdausnp16@gmail.com">firdausnp@gmail.com</a>. Let us weave spells of wonder and leave an indelible mark upon the realms of creation.
+I am ever eager to connect with fellow magicians of the code and embark on extraordinary quests together. Should you wish to join forces and craft something truly magical, do not hesitate to send a message via <a href="mailto:firdausnp16@gmail.com">firdausnp16@gmail.com</a>. Let us weave spells of wonder and leave an indelible mark upon the realms of creation.
 <br/>
 <br/>
 <br/>
